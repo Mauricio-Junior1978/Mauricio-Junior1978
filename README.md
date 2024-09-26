@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mauricio-Junior1978
+- 👀 I’m interested in Programming, but I have no experience as I'm just starting out. 
+- 🌱 I’m currently learning ...
+- 💞️ I'm trying to learn to collaborate on new projects.
+- 📫 How to reach me: +351 969 686 876.
